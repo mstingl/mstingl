@@ -1,4 +1,5 @@
-### Hi there 👋
+> Some mistakes will be made along the way, but thats good, because at least some mistakes are made along the way  
+> ***- Steve Jobs***
 
 <!--
 **mstingl/mstingl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
