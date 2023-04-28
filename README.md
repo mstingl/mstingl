@@ -1,2 +1,2 @@
-> Some mistakes will be made along the way, but thats good, because at least some decisions are made along the way  
+> Details matter, it's worth waiting to get it right.
 > ***- Steve Jobs***
