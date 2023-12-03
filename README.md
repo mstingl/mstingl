@@ -1,7 +1,7 @@
 # Work
 
 - Softwarearchitect, DevOps  
-  Degree as Computer Science Expert Subject Area: Software Development 🎖️ (🇩🇪)  
+  Degree as Computer Science Expert *Subject Area: Software Development* 🎖️ (🇩🇪)  
   *7+ years of practical experience*
 - Planespotting and Photography  
   *3+ years as a hobby*
