@@ -1,10 +1,12 @@
 # Work
 
 - Softwarearchitect, DevOps  
-  Degree as Computer Science Expert *Subject Area: Software Development* 🎖️ (🇩🇪)  
-  *7+ years of practical experience*
+  Degree as Computer Science Expert *Subject Area: Software Development* 🎖️ (IHK/CCI, 🇩🇪)  
+  *practical experience since 2016*
+- IHK/CCI examiner  
+  *voluntary work since 2022*
 - Planespotting and Photography  
-  *3+ years as a hobby*
+  *hobby since 2020*
 
 # Vision
 
