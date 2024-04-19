@@ -3,7 +3,7 @@
 - Softwarearchitect, DevOps  
   Degree as Computer Science Expert *Subject Area: Software Development* 🎖️ (IHK/CCI, 🇩🇪)  
   *practical experience since 2016*
-- Data Protection Officer (IHK/CCI)
+- Data Protection Officer (IHK/CCI)  
   *in office since 2024*
 - IHK/CCI examiner  
   *voluntary work since 2022*
